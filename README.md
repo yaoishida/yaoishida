@@ -1,5 +1,4 @@
-hi pls be my friend :(( ![image](https://blinkies.cafe/b/blinkiesCafe-SW.gif) 
-![image](https://blinkies.cafe/b/blinkiesCafe-Qm.gif) ![image](https://blinkies.cafe/b/blinkiesCafe-Nf.gif)
+hi pls be my friend :(( ![image](https://cdn.discordapp.com/attachments/1136994513034944545/1240185507850489926/blinkiesCafe-Fu.gif?ex=6645a442&is=664452c2&hm=4ec19f367a3b690dd57a358cffbc6d15de402babe08b9fa4ba2dbd2dd6a5b481&) ![image](https://media.discordapp.net/attachments/1136994513034944545/1240185739686187038/blinkiesCafe-gT.gif?ex=6645a479&is=664452f9&hm=5c729f233a19f328ca9f5612bf322d80a36abf59b9881ca788c4fc2c6ae026f2&=&width=187&height=25) ![image](https://media.discordapp.net/attachments/1136994513034944545/1240186086530220082/blinkiesCafe-do.gif?ex=6645a4cc&is=6644534c&hm=7543d4273ee1a2df21fc0a0f79a25295894bd0b28c3ddb8d5c6356dd652dc338&=&width=187&height=25)
 
 ![image](https://media.discordapp.net/attachments/1136994513034944545/1239887867371716699/Untitled291_20240514123135.png?ex=66448f0f&is=66433d8f&hm=9d0be19081646f8b7c05db95836e226114973975954ebeca7ffe41f39d724157&=&format=webp&quality=lossless&width=226&height=438)
  ![image](https://i.pinimg.com/236x/7d/d8/a9/7dd8a9a65815fa78190370f5300f1153.jpg) 
