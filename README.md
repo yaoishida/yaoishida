@@ -1,5 +1,1 @@
-hi pls be my friend :(( ![image](https://media.discordapp.net/attachments/1136994513034944545/1240185507850489926/blinkiesCafe-Fu.gif?ex=665181c2&is=66503042&hm=8f5344115d4dafad781c538651d001677e9ebd24c551d711e63accd86034b50f&=&width=187&height=25)![image](https://media.discordapp.net/attachments/1136994513034944545/1240185739686187038/blinkiesCafe-gT.gif?ex=665181f9&is=66503079&hm=d92f39fc44e5c4497d0d54a76a9f203303185620f10513e61d0f7ba1f64ac4bc&=&width=187&height=25)![image](https://media.discordapp.net/attachments/1136994513034944545/1240186086530220082/blinkiesCafe-do.gif?ex=6651824c&is=665030cc&hm=16c94e7ef9cca944a8b89024f436218d55c1c3a2b3c15c7de569a6789f04f5f9&=&width=187&height=25)
-
-![image](https://media.discordapp.net/attachments/1136994513034944545/1239887867371716699/Untitled291_20240514123135.png?ex=6651be0f&is=66506c8f&hm=a8f8d22b1f0c5029489a79ae71f63149b28820c8167af5528f8c2d6c6db1f66c&=&format=webp&quality=lossless&width=226&height=438)
- ![image](https://i.pinimg.com/236x/7d/d8/a9/7dd8a9a65815fa78190370f5300f1153.jpg) 
-![image](https://i.pinimg.com/236x/88/cb/25/88cb2573014fb92732e62338f82c8c98.jpg)]
+ ![image](https://media1.tenor.com/m/VHt8TbId7CoAAAAC/towa-slow-damage.gif)]
