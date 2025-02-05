@@ -1,11 +1,27 @@
-![image](https://wilardo.crd.co/assets/images/gallery13/32659efd.gif?v=d19c95ca) ![image](https://64.media.tumblr.com/9245a15dad34f3b6bd5179908407ec73/e16d9c3fd8438e13-af/s100x200/ccf910778204ed13b524dc4db741a009fb08e47c.jpg) ![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a05ab71b-2429-4c71-b3f2-74abd1ef5d31/dh6h56u-0cfb4fb2-e97b-4273-add8-dc20ed5cf4f8.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2EwNWFiNzFiLTI0MjktNGM3MS1iM2YyLTc0YWJkMWVmNWQzMVwvZGg2aDU2dS0wY2ZiNGZiMi1lOTdiLTQyNzMtYWRkOC1kYzIwZWQ1Y2Y0ZjguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-VY_fQ91kH03zrUx96VpNAIDBmiPR4dW9Yg4uq5YsGw)    ![image](https://64.media.tumblr.com/120b812cbd7120b9a3099257b5e80324/7f879fb7a6e85ba3-e3/s100x200/d44eba377737dbf1eaeefd89c61a57cbc57ce009.gifv) ![image](https://64.media.tumblr.com/3f738ecebd553033341ac6f2e1b65e4e/509dca664f2eb5e4-af/s100x200/ee7b528fb275dd6a9a210ec35cd024d48006b08f.pnj) ![image](https://files.catbox.moe/r4i6l6.gif)  ![image](https://files.catbox.moe/phvt7m.gif) ![image](https://i.postimg.cc/hPk4ryBt/51-ABF139-BAD8-45-A0-B603-0-E9368-C7-E01-F.png) ![image](https://github.com/user-attachments/assets/9c1b6790-f68f-420c-b32b-5b8e891ee4a1)
-![image](https://64.media.tumblr.com/42a40aa755ab2a211d482fe00a9a0221/62e81ddceab68145-af/s100x200/4ef5a05799aa2eeba1985cb5e5d262539ef60026.gifv)
+![image](https://64.media.tumblr.com/9245a15dad34f3b6bd5179908407ec73/e16d9c3fd8438e13-af/s100x200/ccf910778204ed13b524dc4db741a009fb08e47c.jpg)    ![image](https://github.com/user-attachments/assets/9c1b6790-f68f-420c-b32b-5b8e891ee4a1) ![diusim9-a7d41601-66d1-4687-bc60-cd6b0cf09139](https://github.com/user-attachments/assets/dae30204-4929-48ab-a056-71a46a3b2429) ![db66vt2-9634965e-6a96-45be-bc43-4cd6e6cd7ae3](https://github.com/user-attachments/assets/e71da5a8-234c-44cc-b9d1-943428c1620b) ![yaoi_stamp_by_lead_exile_d2n98f1-fullview](https://github.com/user-attachments/assets/15a582ff-a6ce-436a-8245-57be2c7d24ce) ![image](https://github.com/user-attachments/assets/62564e8c-4559-4b63-8afe-f0298fd55cce)
+![yaoi_addict_stamp_by_cinema_bizarre_d1abihm-fullview](https://github.com/user-attachments/assets/51ec7749-6af3-4865-aca1-3fd5635561d7) ![image](https://github.com/user-attachments/assets/ff19f6d0-baf9-47e8-9844-f8870720a577) ![image](https://github.com/user-attachments/assets/27762167-171d-4431-98a8-287fde5a74ce) ![image](https://github.com/user-attachments/assets/501648af-4d60-4f1f-9b4e-766fdf2bcdf8)
+
+
+
+![image](https://i.pinimg.com/originals/5c/60/e1/5c60e13da52d2b3e9a303c6272c0101f.gif)
+
+
+
+
+
+
+
+
+
 
                                                                                                                                      
 
 
 
-![3227d66cb9efce6a313840e7e719544e](https://github.com/user-attachments/assets/88678208-c7e8-4eea-b8f5-4ff68914201d)
+
+
+
+
 
 
 
