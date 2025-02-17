@@ -2,7 +2,7 @@
 ![image](https://github.com/user-attachments/assets/98802ccd-83b0-4802-aa89-f3ccabcc77b1) ![image](https://github.com/user-attachments/assets/5a825d91-c7eb-49c4-b700-c39542fce8f1) ![image](https://cdn.discordapp.com/attachments/1333537716897583211/1341135357441347655/Untitled85_20250217205207.png?ex=67b4e522&is=67b393a2&hm=5f4199ab85fb3eb9891fc2d909386f120b897e878334b63a4142673f894c734c&)
 
 
-![image](https://github.com/user-attachments/assets/51c3e5a3-2296-45f5-9c6f-da81bfc9a776)
+![image](https://github.com/user-attachments/assets/51c3e5a3-2296-45f5-9c6f-da81bfc9a776) ![image](https://github.com/user-attachments/assets/37291828-7fe3-4618-8e0f-bb021b4fa45e)
 
 
 
