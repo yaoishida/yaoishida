@@ -9,9 +9,6 @@
 <duv align="center">
   <img src="https://media.discordapp.net/attachments/1333537716897583211/1357346275594604554/Untitled180_20250403152923.png?ex=67efdeba&is=67ee8d3a&hm=f72ce9bc4aa55ef2b87851cae3e14fbd05cb092410784f1c437bed889733f9cc&=&format=webp&quality=lossless&width=685&height=288">
 </div>
-<duv align="center">
- <img src= "https://i.pinimg.com/originals/67/08/9c/67089c7aba2f0ee2be48fee6e6fa531d.gif"
-
 
 
 
