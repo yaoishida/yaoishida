@@ -1,5 +1,6 @@
 <div align="center">
-   <a href="https://rentry.co/nohomer">rentry </a> ~ owo
+   <img src="https://pixels.crd.co/assets/images/gallery14/d564ef96.gif?v=99d3974e">
+ <a href="https://rentry.co/nohomer">rentry </a> ~ owo
   
 
 <div align="center">
